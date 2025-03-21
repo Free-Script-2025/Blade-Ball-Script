@@ -51,4 +51,3 @@ Don't forget to ⭐ **star this repository** for more exclusive hacks and update
 
 ---
 
-Would you like any adjustments or more specific sections added?
